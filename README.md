@@ -34,14 +34,12 @@ As we embark on this transformative journey, Polyglot remains committed to conti
 
 ![Polyglot](https://github.com/user-attachments/assets/6a29f579-6606-4392-b4f7-956bf957abed)
 
+![326902321-3de8bf2d-2518-48bc-92aa-5b0c4f56cecc](https://github.com/user-attachments/assets/cbadf828-a7a3-4daa-b2c7-41dd72fe7da0)
+![326902752-869b0bb4-1526-4e17-ac54-dd3ecffff23d](https://github.com/user-attachments/assets/e5c97cce-097c-4393-be71-54e0c29c479d)
+![326902633-f3165f4b-868a-48f0-987b-03f7baa23ed8](https://github.com/user-attachments/assets/cd18b51d-86d8-434c-bfb1-52d739f9212b)
+![326902526-cd4831a4-b94c-4800-8adb-4c396ca50e0b](https://github.com/user-attachments/assets/0344da97-3532-4b2e-bf70-a23e2901cf39)
 
-2024-04-30 (1)
 
-2024-04-30 (4)
-
-2024-04-30 (2)
-
-2024-04-30 (5)
 
 Copyright Rules for Polyglot:
 
