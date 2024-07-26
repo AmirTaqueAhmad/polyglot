@@ -32,7 +32,8 @@ Future Directions
 
 As we embark on this transformative journey, Polyglot remains committed to continuous innovation and evolution. Our roadmap includes integrating emerging technologies such as augmented reality (AR), virtual reality (VR), and artificial intelligence (AI) to enhance learning outcomes and expand the boundaries of educational possibilities. Moreover, we aspire to forge strategic partnerships with educational institutions, corporations, and non-profit organizations to scale our impact and reach underserved communities worldwide.
 
-2024-04-30
+![Polyglot](https://github.com/user-attachments/assets/6a29f579-6606-4392-b4f7-956bf957abed)
+
 
 2024-04-30 (1)
 
